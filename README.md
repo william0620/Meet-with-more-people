@@ -1,2 +1,2 @@
-# Forbidden from commercial use.
+# Forbidden from Commercial Use.
 Meet with more people ！^_^
